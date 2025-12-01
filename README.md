@@ -16,4 +16,4 @@
 
 ## Resolução
 
-Vídeo: 
+[Vídeo](https://youtu.be/eq9dKN2DbeQ)
